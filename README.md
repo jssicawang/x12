@@ -1,4 +1,4 @@
-Love Story - Taylor Swift
+Love Story (2008) - Taylor Swift
 
 We were both young when I first saw you
 I close my eyes and the flashback starts
